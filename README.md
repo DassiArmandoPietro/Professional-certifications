@@ -76,8 +76,8 @@ Topics: Concepts of risk, harm, prevention and protection. Rights and duties of 
 
 ## Contacts
 
-dassiarmandopietro@outlook.it
-https://www.linkedin.com/in/armando-pietro-dassi-9b706b174/details/certifications/
+Mail: dassiarmandopietro@outlook.it
+Link accesso certificazioni LinkedIn: https://www.linkedin.com/in/armando-pietro-dassi-9b706b174/details/certifications/
 Contenuti/Certificazioni multimediali: https://www.dropbox.com/scl/fo/8k7nhm9tt3bdof9my6ua1/ABkUvu-UO352VR5328Ty2l8?rlkey=uytej5l8z7lzk71ka2epx00hh&st=lin9gi8c&dl=0
 
 # This repository is continuously updated with new certifications.
